@@ -1,2 +1,2 @@
 # resume
-Latest resume October 2025
+Resume October 2025
